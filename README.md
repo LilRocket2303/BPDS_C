@@ -8,7 +8,7 @@
 > 
 > Semestre: II
 >
-> Univerisdad de la Costa (CUC)
+> Univerisdad de la Costa (CUC) .
 
 ---
 
